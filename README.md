@@ -1,5 +1,5 @@
 # Microsoft
-(SEP 2017 - FEB 2018) Intern(Digital Communication Manager), Education Team, Microsoft Korea
+(September 2017 - February 2018 ) Intern(Digital Communication Manager), Education Team, Microsoft Korea
 
 	Built and optimize overall digital strategies and customer journey to increase education solutions’ market shares. 
 
